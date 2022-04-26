@@ -1,0 +1,1 @@
+# sql-practice---02-by-chhavi-raj-singh
